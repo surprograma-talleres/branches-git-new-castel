@@ -1,17 +1,9 @@
 ### [Alma de lapacho](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
 
-<<<<<<< HEAD
-Lapacho, asd asd
-Solito en el monte
-Donde el día esconde
-Lumbre de la tierra
-Ceniza de sol.
-=======
 onte
 sconde
 ierra
 Ahoraasd
->>>>>>> 46c0c4f59a0f4c056053eb6da393b93af8a0c183
 
 Lapacho
 También en mi alma
