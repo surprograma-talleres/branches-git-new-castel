@@ -1,9 +1,11 @@
 ### [Alma de lapacho](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
 
-onte
-sconde
-ierra
-Ahoraasd
+
+Lapacho, asd asd
+Solito en el monte
+Donde el día esconde
+Lumbre de la tierra
+Ceniza de sol.
 
 Lapacho
 También en mi alma
