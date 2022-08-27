@@ -10,7 +10,7 @@ Lapacho
 También en mi alma
 La vida
 Sembró su color.
-Un árbol
+Un árbol de Navidad
 Borracho de sueños
 Con ramas de viento
 Crecido en el monte
